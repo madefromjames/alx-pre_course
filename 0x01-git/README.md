@@ -1,1 +1,1 @@
-ALX pami na
+ALX course
