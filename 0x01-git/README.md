@@ -1,1 +1,1 @@
-ALX pami nau
+ALX pami na
